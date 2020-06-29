@@ -23,10 +23,3 @@ Its all
 
 ##### API  SHODAN 
      PSKINdQe1GyxGgecYz2191H2JoS9qvgD
-
-
-#### Donat 
-     qiwi +79635621501
-     yandex money +79635621501
-
-     
